@@ -1,1 +1,1 @@
-[jlofw.com](jlofw.com)
+[jlofw.com](https://www.linkedin.com/in/jlofw/)
